@@ -1,0 +1,2 @@
+# Kma
+Ghana
